@@ -13,3 +13,7 @@ Criação de um video de IA sobre um modelo de Visao Computacional que estou tra
 
 ## 🚀 Resultados
 Video anexado
+
+
+https://github.com/user-attachments/assets/5d2957f5-31fa-4b06-8a8f-23de688c163a
+
